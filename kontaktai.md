@@ -16,7 +16,7 @@ Konsultuojami asmenys nuo 18 m. amžiaus.<br>
 <strong>Telefonas:</strong> +370 655 20785<br>
 El. paštas:<a href="mailto:jaugeliene.do@gmail.com"> jaugeliene.do@gmail.com</a><br>
 Konsultuojami asmenys nuo 15 m. amžiaus.<br>
-<strong>Sesijos kaina:</strong> 50€<br>
+<strong>Sesijos kaina:</strong> 60€<br>
 <strong>Sesijos trukmė:</strong> 50min.<br>
 
 ### Adresas
